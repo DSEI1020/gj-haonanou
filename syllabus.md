@@ -10,4 +10,4 @@ Syllabus Qs
 
   3. What on the syllabus scares you?  
       
-     Final Exam。
+     Final Exam.
